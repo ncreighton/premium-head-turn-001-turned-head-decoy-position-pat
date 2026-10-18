@@ -1,0 +1,2 @@
+# premium-head-turn-001-turned-head-decoy-position-pat
+Tired of guessing where to place your decoy heads for maximum realism and attraction? The Turned Head Decoy Position Pattern Library eliminates trial-and-error with 50+ proven setups designed to mimic natural flock behavior.  This Notion template solves the pain of inconsistent decoy positioning by providing a curated library of visual patterns for
